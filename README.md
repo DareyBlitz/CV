@@ -8,7 +8,7 @@ Junior QA Tester
 @mail: dareyblitz@vk.com
 tg: @DareyBlitz
 
-![](C:\Users\daria\Desktop\CV)
+![qq9Xxs3AGQU](https://user-images.githubusercontent.com/127688512/231365520-d14e0e64-582d-40fa-85a7-30e2efdee556.jpg)
 
 **Образование**
 
